@@ -21,6 +21,6 @@
 
 <p align=center> .
 
-### *<p align=center>* [Carrd !!](https://damien.ju.mp) || [collective](https://circus.crd.co) 
+### *<p align=center>* [Carrd !!](https://rentry.co/benry) || [collective](https://rentry.co/plurality) 
   
 <p align=center> i hide freely, dont whisper to me or try to argue w me if ur an exclus or sysmed or terf (why do transphobes play this game), do not argue w me on random shit i will kill you, respect ur own dni pls n thx
