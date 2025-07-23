@@ -17,8 +17,7 @@
 ---
 ### *<p align=center>* hi my name is  damien! im an 18 y/o 
 ### *<p align=center>* intersex aphroflux non binary boythinggirl aromantic mspec gaybian lesboy turigirl !!
-### *<p align=center>* disabled & chronically ill, plural system of over 10 members - traumagenic did + separate tulpa experience
-### *<p align=center>* asian indig romani creole jew
+### *<p align=center>* disabled & chronically ill, plural system of over 10 members - traumagenic did + separate tulpa experience, asian indig romani creole jew
 
 
 ---
