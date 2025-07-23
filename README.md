@@ -1,4 +1,8 @@
-*<p align=center>* ![](https://files.shapes.inc/avatar_033e016d-11f6-4710-92c4-71e88c5ba21e.png)
+---
+
+ <img align="center" width="300" height="300" src="https://64.media.tumblr.com/422e0f0f06c6eee6f0aa436ce6331a74/61e3359c7dc3b01d-cd/s1280x1920/23601d7b9fff03b015a3a5b2cf08e7defe2190f0.pnj">
+
+
 
 ---
 
